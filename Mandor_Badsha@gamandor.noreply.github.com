@@ -1,2 +1,2 @@
-# Mandor-Badsha
+https://github.com/
 hajizafar@mandor.com
